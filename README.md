@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kanekieee
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+
+
+
